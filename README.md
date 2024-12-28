@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Beam
 - 👀 I’m interested in Python, java node, roblox luau
 - 🌱 I’m currently learning javq
-- 📫 How to reach me, never
+- 📫 How to reach me, Phone (650) 940-9838
 - 😄 Pronouns: him
 - ⚡ Fun fact: i like tites
 
